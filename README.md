@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bskdhanush
-- 👀 I’m interested in Web and MObile application development
+- 👀 I’m interested in Web and Mobile application development
 - 🌱 I’m currently learning >>>>
 - 💞️ I’m looking to collaborate on nobe
 - 📫 How to reach me dhanush.bondad@gmail.com
